@@ -13,4 +13,6 @@ heriquefalcaoreis@gmail.com
 
 @duh.itsjosephh
 
-![](https://media.tenor.com/KnVLnCWqQn8AAAAi/investree-semua-bisa-tumbuh.gif)![](https://media.tenor.com/L5bdnX3JpG8AAAAC/acxt-acdx.gif)
+![](https://media.tenor.com/KnVLnCWqQn8AAAAi/investree-semua-bisa-tumbuh.gif)
+
+![](https://media.tenor.com/L5bdnX3JpG8AAAAC/acxt-acdx.gif)
