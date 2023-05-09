@@ -1,9 +1,9 @@
 
 ### Boas vindas ao meu perfi 🇧🇷
 
-Meu nome e Jose henrique
+Meu nome e Matheus Correa
 
-- Estou estudando na Alura
+- Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me Desenvolvendo na Linguagem JavaScript
 - Ultilizo esse espaço para minha organizaçao e compartilhamento dos meus projetos densenvollvidos
 
